@@ -1,6 +1,6 @@
 РЕЗЮМЕ В ПДФ ФОРМАТЕ И ПНГ СВЕРХУ ↑↑↑
 
-Суранчина Малика   -  Андроид разработчик![](Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.001.png)![](Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.002.png)![](Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.003.png)
+Суранчина Малика   -  Андроид разработчик![](assets/Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.001.png)![](assets/Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.002.png)![](assets/Aspose.Words.3ec1ba96-d59a-40bf-9f43-bd6ed3eef902.003.png)
 
 Возраст: 23 love@mika-pika.ru г. Алматы, Медеуский район +7 708-27-62-186
 
